@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Cheva
+- 👀 I’m interested in making money
+- 🌱 I’m currently learning to code
+- 💞️ I’m looking to collaborate on proyects
+- 📫 How to reach me email: torrejse@mail.gvsu.edu
