@@ -2,4 +2,4 @@
 - 👀 I’m interested in creating fun things
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on proyects
-- 📫 How to reach me email: torrejse@mail.gvsu.edu
+- 📫 How to reach me email: sebastian.torrejon14@gmail.com
