@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Cheva
 - 👀 I’m interested in creating fun things
 - 🌱 I’m currently learning to code
-- 💞️ I’m looking to collaborate on proyects
+- 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me email: sebastian.torrejon14@gmail.com
